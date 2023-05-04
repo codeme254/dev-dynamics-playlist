@@ -27,8 +27,8 @@
 1. "Kubali" by Brandy Maina
 1. "All of me" by John Legend
 1. "Witness" by Ethan Muziki
-### *lucky playlist(by japhethy)
+
+### *lucky playlist (by japheth)*
 1. Nothing but the best
-2. Trying it Again
-3. We are coming back
-4. Keep on moving
+1. we are tring again 
+1. Keep moving
