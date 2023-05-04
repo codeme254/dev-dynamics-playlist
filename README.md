@@ -28,8 +28,13 @@
 1. "All of me" by John Legend
 1. "Witness" by Ethan Muziki
 
-mosesplaylist
-Skillibeng: "Crocodile Teeth""Brik Pan Brik"
-Jahmiel""U Me Luv""Strongest Soldier"
-Skeng"  "W3ndi""Grrr"
-Vybz Kartel:"Fever""clarks"
+### *lucky playlist (by japheth)*
+1. Nothing but the best
+1. we are tring again 
+1. Keep moving
+
+### *Skillibeng:* 
+1. "Crocodile Teeth""Brik Pan Brik"
+1. Jahmiel""U Me Luv""Strongest Soldier"
+1. Skeng"  "W3ndi""Grrr"
+1. Vybz Kartel:"Fever""clarks"
